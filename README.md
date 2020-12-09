@@ -1,1 +1,1 @@
-# [genos.se & genos-se.github.io](genos.se)
+# [genos.se & genos-se.github.io](https://genos.se)
